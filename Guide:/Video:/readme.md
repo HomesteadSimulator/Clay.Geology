@@ -1,1 +1,1 @@
-- [The science behind why clay is perfect for pottery | Sci NC](
+- [The science behind why clay is perfect for pottery | Sci NC](https://youtu.be/6h12dvkruHQ)
